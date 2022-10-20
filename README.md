@@ -1,2 +1,1 @@
-Elizabete Akermane 
-"Elizabete Akermane" 
+Elizabete Akermane
